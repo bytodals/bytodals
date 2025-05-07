@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @bytodals /Johanna /Jo
+- 🌱 I’m currently learning web development!
+- 😄 Pronouns: She/her
